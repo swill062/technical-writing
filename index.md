@@ -38,3 +38,14 @@ Yes – you can learn from your own mistakes, but you can also learn from other�
 
 By reading.  
  
+### Now Get Going:
+
+Logically speaking, the less mistakes you make, the more successful you will be. 
+
+Reading a plethora of books and passages from a variety of fields increases the chance that you will find the piece of advice or tip that will bring you success. Don’t limit yourself. I don’t want you to waste your efforts when you don’t need to. 
+
+If someone has already supplied the information that you need, then reading is the method through which you will find it. 
+
+As the willingness to read decreases, its importance increases and the divide between those who read and those who don't becomes ever more apparent. Those who read for themselves have a significant advantage over those who don't, and I want you to succeed.
+
+Be a reader. It's that simple.
