@@ -12,15 +12,15 @@ Books and passages are no longer viewed as sources of learning but rather as a c
 
 There is so much that you can learn and gain from reading but only if you are willing to engage with the information – and that willingness is decreasing. 
 
-### What is Reading:
-
-In order to properly evaluate the problem, you must understand the nature of reading.
-
-Let’s look at it like this:
-
-On the surface, reading can seem to be just taking in or learning new information. But to be effective, you must take the information presented to you and interpret it in a way that is meaningful to you. 
-
-Education tends to take that personalization out of the picture. It is not a priority. As a result, **most people are not actually being educated**. 
+> ### What is Reading:
+>
+> In order to properly evaluate the problem, you must understand the nature of reading.
+>
+> Let’s look at it like this:
+>
+> On the surface, reading can seem to be just taking in or learning new information. But to be effective, you must take the information presented to you and interpret it in a way that is meaningful to you. 
+>
+> Education tends to take that personalization out of the picture. It is not a priority. As a result, **most people are not actually being educated**. 
 
 ### So What:
 
