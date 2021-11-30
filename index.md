@@ -9,4 +9,3 @@ Why? Because the interest in reading is decreasing.
 Education often employs assignments involving analysis, reports, and presentations on information from required readings. Emphasis on “**required**”. That word alone is enough to deter most people from engaging as they should simply because they are being told they _HAVE_ to. 
 
 Books and passages are no longer viewed as sources of learning but rather as a checkbox that must be marked to continue on in education. This mindset is completely limiting. 
-![image](https://user-images.githubusercontent.com/95310377/144123671-2c11efd4-96fe-4dbc-a6de-737a17b4fee3.png)
