@@ -18,7 +18,7 @@ In order to properly evaluate the problem, you must understand the nature of rea
 
 Let’s look at it like this:
 
-On the surface, reading can seem to be just taking in or learning new information. But to be effective, you must take the information presented to you and interpret it in a way that is meaningful to you. 
+On the surface, reading can seem to be just taking in or learning new information. But to be effective, <you must take the information presented to you and interpret it in a way that is meaningful to you>. 
 
 Education tends to take that personalization out of the picture. It is not a priority. As a result, most people are not actually being educated. 
 
@@ -48,4 +48,4 @@ If someone has already supplied the information that you need, then reading is t
 
 As the willingness to read decreases, its importance increases and the divide between those who read and those who don't becomes ever more apparent. Those who read for themselves have a significant advantage over those who don't, and I want you to succeed.
 
-Be a reader. It's that simple.
+## Be a reader. It's that simple.
