@@ -18,9 +18,9 @@ In order to properly evaluate the problem, you must understand the nature of rea
 
 Let’s look at it like this:
 
-On the surface, reading can seem to be just taking in or learning new information. But to be effective, <you must take the information presented to you and interpret it in a way that is meaningful to you>. 
+On the surface, reading can seem to be just taking in or learning new information. But to be effective, you must take the information presented to you and interpret it in a way that is meaningful to you. 
 
-Education tends to take that personalization out of the picture. It is not a priority. As a result, most people are not actually being educated. 
+Education tends to take that personalization out of the picture. It is not a priority. As a result, **most people are not actually being educated**. 
 
 ### So What:
 
@@ -32,7 +32,7 @@ If you could avoid making a mistake that someone else has already made, wouldn�
 
 Mistakes can be personal and small, or large-scale and wide-reaching. Being able to avoid those mistakes gives you a competitive advantage in life. 
 
-There is a common saying that “you will not understand something unless you experience it yourself”. What a piece of crap. Why spend your time and energy to go down a path on which others have experienced failure? 
+There is a common saying that “_you will not understand something unless you experience it yourself_”. What a piece of crap. Why spend your time and energy to go down a path on which others have experienced failure? 
 
 Yes – you can learn from your own mistakes, but you can also learn from other’s mistakes. How do you do that?
 
@@ -42,7 +42,7 @@ By reading.
 
 Logically speaking, the less mistakes you make, the more successful you will be. 
 
-Reading a plethora of books and passages from a variety of fields increases the chance that you will find the piece of advice or tip that will bring you success. Don’t limit yourself. I don’t want you to waste your efforts when you don’t need to. 
+Reading a plethora of books and passages from a variety of fields increases the chance that you will find the piece of advice or tip that will bring you success. Don’t limit yourself. Spread your focus to multiple genres. I don’t want you to waste your efforts following only one or two avenues of data collection. 
 
 If someone has already supplied the information that you need, then reading is the method through which you will find it. 
 
