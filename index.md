@@ -28,7 +28,7 @@ Why is it a problem that reading is decreasing? How does that affect you? Those 
 
 Reading materials – books, articles, reviews, etc. – are all accumulations of people’s thoughts, actions, and emotions. People other than yourself. People who have already gone through the same situations that you might be facing. 
 
-If you could avoid making a mistake that someone else has already made, wouldn’t you?
+**If you could avoid making a mistake that someone else has already made, wouldn’t you?**
 
 Mistakes can be personal and small, or large-scale and wide-reaching. Being able to avoid those mistakes gives you a competitive advantage in life. 
 
