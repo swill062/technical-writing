@@ -12,10 +12,29 @@ Books and passages are no longer viewed as sources of learning but rather as a c
 
 There is so much that you can learn and gain from reading but only if you are willing to engage with the information – and that willingness is decreasing. 
 
-### So What:
+### What is Reading:
 
-Why is it a problem that reading is decreasing? That is a valid question. 
+In order to properly evaluate the problem, you must understand the nature of reading.
 
 Let’s look at it like this:
 
-Reading materials – books, articles, reviews, etc. – are all accumulations of people’s thoughts, actions, and emotions. People other than yourself. People who have already gone through the same situations that you might be facing.  
+On the surface, reading can seem to be just taking in or learning new information. But to be effective, you must take the information presented to you and interpret it in a way that is meaningful to you. 
+
+Education tends to take that personalization out of the picture. It is not a priority. As a result, most people are not actually being educated. 
+
+### So What:
+
+Why is it a problem that reading is decreasing? How does that affect you? Those are valid questions. 
+
+Reading materials – books, articles, reviews, etc. – are all accumulations of people’s thoughts, actions, and emotions. People other than yourself. People who have already gone through the same situations that you might be facing. 
+
+If you could avoid making a mistake that someone else has already made, wouldn’t you?
+
+Mistakes can be personal and small, or large-scale and wide-reaching. Being able to avoid those mistakes gives you a competitive advantage in life. 
+
+There is a common saying that “you will not understand something unless you experience it yourself”. What a piece of crap. Why spend your time and energy to go down a path on which others have experienced failure? 
+
+Yes – you can learn from your own mistakes, but you can also learn from other’s mistakes. How do you do that?
+
+By reading.  
+ 
