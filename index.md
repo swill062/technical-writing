@@ -18,7 +18,7 @@ There is so much that you can learn and gain from reading but only if you are wi
 >
 > Let’s look at it like this:
 >
-> On the surface, reading can seem to be just taking in or learning new information. But to be effective, you must take the information presented to you and interpret it in a way that is meaningful to you. 
+> On the surface, reading can seem to be just taking in or learning new information. But to be effective, you must take the information presented to you and interpret it in a way that is meaningful to you. It is an _active_ process.
 >
 > Education tends to take that personalization out of the picture. It is not a priority. As a result, **most people are not actually being educated**. 
 
